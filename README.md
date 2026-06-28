@@ -1,1 +1,1 @@
-# mini-scn-god-mode-producer-scana279
+mini god mode version 5 8 50
